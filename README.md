@@ -6,7 +6,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=manuper3z&label=Profile%20views&color=0e75b6&style=flat" alt="manuper3z" /> </p>
 
 - 📫 How to reach me **m_pl23@icloud.com**
-
+- My Youtube Channel: https://www.youtube.com/@ManuelP%C3%A9rezLuque
 - ⚡ Fun fact **I have a playlist for every mood. Ask me for a recommendation!**
 
 <h3 align="left">Connect with me:</h3>
